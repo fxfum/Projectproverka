@@ -30,4 +30,14 @@ void main()
 //fnasdpjnfsdajmcvomsdapndfdasdfsadfgdfg
 //[pld[apskf
 // 
-// asf'lsd[];,fa;[sdl,flase[pdkasfplmdaskf]]]
+// asf'lsd[];,fa;[sdl,flase[pdkasfplmdaskf]]]/[dskfpaksdpfkasdokfsadkf\
+adf,sad.m,f;mads;lfmdsal;mfladms;fdm;f,mcxzv
+//a;sldmfloknadsfnodjksanf/fa[pfksdpojkfmpoadskf/////dasfmklpdksajf[kpjadsokf[hjnadiopsjubhnfijpbdsijgbnfov
+///f[lasdmfp[knmadsokpnfop[kdsampf,dpa///////////
+
+
+
+
+
+
+//dfkaspdknjfgokdnsafgpkmdspkfnaosdik
